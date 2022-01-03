@@ -5,6 +5,6 @@
 - 📫 How to reach me @ca371429@gmail.com or call 0964394506
 
 <!---
-CalebMwelwa/CalebMwelwa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+CalebMwelwa/Roddy.X is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
